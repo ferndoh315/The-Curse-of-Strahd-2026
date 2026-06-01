@@ -7,7 +7,7 @@
 
 Five strangers, each driven by their own hunger — for truth, for craft, for coin, for survival, for the divine — found themselves pulled northward toward **Neverwinter**, that improbable city blazing warm against an eternal winter. None of them knew the others were coming. They only knew something had called them there.
 
-> **Qyleth Virellian** — *Tiefling Bard, leader of The Virellians*
+> **Qyleth Virellian** — *Tiefling Bard, headliner of The Virellians*
 > 
 > Young for how well-known she is, Qyleth's traveling troupe lights up every tavern from the southern tropics to the northern frosts. She had been summoned by the royal court of Neverwinter to perform for the monarchs. The money was too good to refuse. The cold, however, was another matter.
 
