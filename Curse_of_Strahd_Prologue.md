@@ -8,18 +8,23 @@
 Five strangers, each driven by their own hunger — for truth, for craft, for coin, for survival, for the divine — found themselves pulled northward toward **Neverwinter**, that improbable city blazing warm against an eternal winter. None of them knew the others were coming. They only knew something had called them there.
 
 > **Qyleth Virellian** — *Tiefling Bard, leader of The Virellians*
+> 
 > Young for how well-known she is, Qyleth's traveling troupe lights up every tavern from the southern tropics to the northern frosts. She had been summoned by the royal court of Neverwinter to perform for the monarchs. The money was too good to refuse. The cold, however, was another matter.
 
 > **Seren Vael** — *Elven Twilight Domain Cleric, follower of Selûne*
+> 
 > Guided northward by the moon itself. Seren follows the lunar calculations of Waterdeep's scholars — and the insistent pull of her astrolabe, which practically wriggles out of her pack to point the way. Her order's temple disappeared without a trace — no word, no warning, just gone. She took to the road in its absence, carrying its teachings with her, sharing what she knows. The astrolabe had been pulling north ever since. She followed.
 
 > **Mumbles Fussmutter** — *Gnome Artificer*
+> 
 > A meticulous gnome craftsman from Baldur's Gate whose creations have a peculiar habit of resembling insects. The sight of the first-ever Warforged to walk into Baldur's Gate broke something loose in him. He left his shop in his apprentice's hands and followed the trail north to the Clockwork Stein, said to be the birthplace of Warforged craftsmanship on the Sword Coast. A workshop explosion took much from his father. These curious vessels, life sustained by craft, might hold the answer.
 
 > **Chuck** — *Elven Wild Magic Sorcerer, Merchant & Traveler*
+> 
 > A morally flexible elf who pushed his luck too far in Baldur's Gate, got run out by merchant guilds, and landed in a Waterdeep jail awaiting execution by drowning — in part because of the guilds, in part because of what his magic tends to do when he's cornered. A lizardfolk cellmate offered a deal: help break out, follow north, and find a city too warm to exist this far into the cold. Chuck did. The lizardfolk made it as far as Neverwinter's gates before collapsing in the road — leaving Chuck holding a dying stranger and a very strange story.
 
 > **Loma** — *Drow Elf Ranger, with her companion Lumi*
+> 
 > A drow ranger traveling north with Lumi — her snow leopard companion — at her side, driven by something far darker than curiosity. Her mentor Bram revealed the truth she had been denied for years: red-robed wizards performing rituals of fire and sacrifice, burning the souls of cold-born creatures to strengthen their flames — and the drow had been helping them. Loma is heading north to find out why. She already knows what a cold-born creature looks like. Lumi does too.
 
 ---
