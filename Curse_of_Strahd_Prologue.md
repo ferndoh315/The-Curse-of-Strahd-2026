@@ -70,7 +70,7 @@ They were already there when the party came in the back way. Three of them, lean
 
 *"Kindred!"*
 
-The lost-boys-looking miscreants underwent a flesh-ripping transformation. They shed their skin and emerged as goliath, bipedal, muscular bat monstrosities with wings for arms. Nightmares made architecture. Seven of them in total.
+The lost-boys-looking miscreants underwent a flesh-ripping transformation. They shed their skin and emerged as goliath, bipedal, muscular bat monstrosities with wings for arms. Nightmares manifested in reality. Seven of them in total.
 
 The bar became a slaughterhouse in under a minute. **Qyleth's stage anchor was ripped apart** before anyone could react. The vampiric horrors were in the room, and they were feeding.
 
