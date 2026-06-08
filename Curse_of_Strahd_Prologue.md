@@ -1,4 +1,4 @@
-# 🩸 The Curse of Strahd — Prologue Recap
+# 🩸 The Curse of Strahd —  Session 1 Recap
 *Neverwinter, The Blacklake District · The Clockwork Stein*
 
 ---
