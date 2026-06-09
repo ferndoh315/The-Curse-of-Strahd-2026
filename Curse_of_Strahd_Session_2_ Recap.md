@@ -101,7 +101,7 @@ Making use of the key from the office desk, they entered the nursery. The source
 
 On the way out, **Loma** paused at the nursemaid's crib. The spectral woman was still looping, still cooing to nothing. Inside the bundle she had been cradling all along: a small pendant and a rattle, the only real things in her arms. Loma took them quietly and said nothing.
 
-The bones of **Rose** and **Thorn** were carried to the mausoleum and interred properly. As Rose's remains slid into place, the stone slab caught on something. A small coffer, hidden behind the slab. Inside: scattered coins, toys, a child's secret treasury.
+The ratle, pendant and the bones of **Rose** and **Thorn** were carried to the mausoleum and interred properly. As Rose's remains slid into place, the stone slab caught on something. A small coffer, hidden behind the slab. Inside: scattered coins, toys, a child's secret treasury.
 
 Before any reasonable discussion could happen, the coins were already being divided between **Malor** and mostly **Mumbles**. **Loma** wasn’t having it. She called it out directly: “You would not even have come if you hadn't been pushed to!” The argument’s resolution will have to be the first order of business come next session.
 
