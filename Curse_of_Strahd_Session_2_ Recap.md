@@ -1,5 +1,5 @@
 # 🩸 Curse of Strahd — Session 2 Recap
-*The Road to Barovia · The Durst Manor · Death House*
+*The Road to Barovia · The Durst Manor ·*
 
 ---
 
