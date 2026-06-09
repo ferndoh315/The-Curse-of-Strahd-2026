@@ -107,8 +107,11 @@ Before any reasonable discussion could happen, the coins were already being divi
 
 **Items recovered this session:**
 > 🗡️ Obsidian ritual dagger, faint arcane humming (dining table hidden compartment, first floor)
+
 > 🪙 Coin bearing Strahd's face (cultist chest, second floor)
+
 > 📜 Letter from Strahd to the Durst family (cultist chest, second floor)
+
 > 💰 Gold coins from Rose's hidden coffer (disputed, unresolved)
 
 As the mausoleum was sealed, chanting drifted up from somewhere below the house: rhythmic, reverent, repeating the name *von Zarovich*. The basement of Durst Manor was not explored. Whatever the family was doing down there is unfinished.
