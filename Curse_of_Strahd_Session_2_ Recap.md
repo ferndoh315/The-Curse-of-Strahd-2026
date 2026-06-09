@@ -119,4 +119,4 @@ The party chose the road.
 
 *The village of Barovia awaits. **Strahd's** dinner invitation hangs in the air. The basement still sealed. **Seren's** fate unknown. A gold dispute unresolved. And the party is now **Level 3**.
 
-`End of Session Two · The Land of Barovia · Death House`
+`End of Session Two · The Land of Barovia ·`
